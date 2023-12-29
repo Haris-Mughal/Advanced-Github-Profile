@@ -1,5 +1,5 @@
 ## Use this to upgrade your Github Profile like a Professional.
-### Note: Remove any Extra thing that you didn't need.
+### Note: Add or Remove any Extra thing that you need or not respectively.
 
 
 
